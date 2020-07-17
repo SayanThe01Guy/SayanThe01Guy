@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ... Solar System
 - 🤔 I’m looking for help with ... Android, Planetarium
 - 💬 Ask me about ... Anything
-- 📫 How to reach me: ... [The01Guy](mailto:sayanthe01guy@gmail.com)
+- 📫 How to reach me: ... [eMail](mailto:sayanthe01guy@gmail.com)
 - 😄 Pronouns: ... Programmer👨‍💻-Engineer👷‍♂️-Gamer🎮
 - ⚡ Fun fact: ... I'm not finished yet
 
